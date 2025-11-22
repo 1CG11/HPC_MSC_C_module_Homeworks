@@ -4,4 +4,4 @@ The entire course content was gifted to me by a most generous and benevolent fri
 These are certainly not all the files, more will be uploaded.
 
 Obviously I'm leaving the name of the university anonymous so that it doesn't compromise the coursework for future students. 
-The questions themselves are not difficult enough to warrent being googled regardless.
+The questions themselves are not difficult enough to warrant being googled regardless.
